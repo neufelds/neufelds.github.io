@@ -3,7 +3,7 @@ layout: post
 title: East Bound!
 published: true
 ---
-![TA_17 -J.jpg]({{site.baseurl}}/_posts/TA_17 -J.jpg)
+![Somewhere Near Banff](/images/TA_17 -J.jpg)
 
 ## Family and Friends, 
 
