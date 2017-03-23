@@ -21,13 +21,10 @@ Note: ECD are subsidising their internship church $300 a month out of that fund 
 
 ### OR to use cheque or money order send the donation to...
 
-Eastern Canadian District
-
-11 Stanley Court
-
-Unit 12
-
-Whitby, ON , L1N 8P9
+##### Eastern Canadian District
+##### 11 Stanley Court
+##### Unit 12
+##### Whitby, ON , L1N 8P9
 
 Make chq payable to "Eastern Canadian District" and put "Atlantic Development Fund" in the memo.
 
