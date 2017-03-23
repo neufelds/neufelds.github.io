@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Donation Instructions
+title: East Bound!
 published: true
 ---
 
