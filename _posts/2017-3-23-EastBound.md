@@ -32,4 +32,4 @@ Thank you for your continued support!
 
 ### Timothy & Alyson Neufeld
 
-P.S. We would love to continue to update you with newsletters! If you would like to get updated please subscribe on the top right of this page.
+P.S. We would love to continue to update you with newsletters! If you would like to get updated please subscribe by entering your email in the subscription box down below! 
