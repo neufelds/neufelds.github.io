@@ -4,7 +4,7 @@ title: About
 permalink: /about/
 ---
 
-Tim & Aly currently live in Calgary, AB where Tim is finishing his degree at Ambrose University and Aly is beginning to work toward her degree.
+Tim & Aly currently live in Truro, NS where Tim is finishing his degree at Ambrose University with an Internship, and Aly is beginning to work toward her degree in Animal Science at Dalhousie Agricultural Campus.
 
 Tim & Aly are affiliated with the Christian & Missionary Alliance of Canada, through with Tim is accredited. This denomination of the Church is especially focused on Christian missions and growing more like Christ progressively.
 
